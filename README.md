@@ -1,4 +1,4 @@
-### boas vndas ao meu perfil❤
+### boas vindas ao meu perfil❤
 
 meu nome é Leticia Amaral 
 
