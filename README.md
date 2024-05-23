@@ -3,7 +3,7 @@
 meu nome é Leticia Amaral 
 
 - estou estudando na [Alura](https://www.alura.com.br)
-- estou me desenvolvend no itinerário de robótica
+- estou me desenvolvendo no itinerário de robótica
 - Ultilizo este espaço para a minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você entrar em contato comigo
